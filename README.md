@@ -1,1 +1,0 @@
-# qenericdiscordtheme.github.io
